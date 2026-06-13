@@ -1,4 +1,7 @@
-# all graphs i could find correlating 2 slenderverse or crp!
+# all graphs i could find correlating 2 slenderverse or crp
+sidenote: theres actually so little
+i has 2 dig theae up from neocities
+personal sites im so sorry guys :-[
 
 <img width="99" height="57" alt="Image" src="https://github.com/user-attachments/assets/7667bc3a-c8f6-4c07-9229-93cdaef9f9fe" />
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/c0f510c7-65db-4dc5-9a28-14351787d85c" />
@@ -18,3 +21,12 @@
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/74b2fa77-d4ce-4760-95db-33e2a26c04a5" />
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/19c477f2-55d0-43cc-9b1a-bdc5ce3e3e21" />
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/655fc7fd-feb2-4ea8-81f4-265c3594edb4" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/69fa4c97-873f-4018-8efe-1053b1510578" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/9e8b5a38-17da-4529-8dd9-65e9d5b4bfee" />
+<img width="224" height="56" alt="Image" src="https://github.com/user-attachments/assets/51c051b7-58d3-4830-bfea-e597493fab45" />
+<img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/f7fdc458-fffc-4f25-95c0-f45d0fe89611" />
+
+<img width="224" height="56" alt="Image" src="https://github.com/user-attachments/assets/e86aa896-dc30-4b0b-af38-a18436ea8ee8" />
+<img width="224" height="56" alt="Image" src="https://github.com/user-attachments/assets/a721cdf5-8765-47e9-9476-b59f110cb453" />
+<img width="224" height="56" alt="Image" src="https://github.com/user-attachments/assets/f1a3f89e-da4a-4455-ac8b-80d13aa1033a" />
+<img width="224" height="56" alt="Image" src="https://github.com/user-attachments/assets/849bd073-4121-457a-ad8a-e7ad7dfa7079" />
