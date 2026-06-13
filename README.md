@@ -1,4 +1,4 @@
-stamps, gifs, blinkies, blingees,   etc
+slenderverse, creepypasta, marble hornets, everymanhybrid, slenderman, jeff, ben drowned, smile dog, jane,  eyeless jack, sally, bloody painter, splendorman, toby, masky, tim, brian, jay alex, jessica, evan, habit, graphics, stamps, gifs, blinkies, blingees,   etc
 
 sidenote: theres actually so little
 i has 2 dig theae up from neocities
@@ -19,6 +19,7 @@ personal sites im so sorry guys :-[
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/7805d726-f560-4d10-a137-0c8afb2b577a" />
 <img width="98" height="55" alt="Image" src="https://github.com/user-attachments/assets/6f7cbe4d-23f8-4e8f-b989-f23a91915db5" />
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/fffe9069-1d38-4de0-b873-85eeee8fe1e4" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/d84c70fc-6f6e-438f-9557-a88e6ab6f980" />
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/74b2fa77-d4ce-4760-95db-33e2a26c04a5" />
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/19c477f2-55d0-43cc-9b1a-bdc5ce3e3e21" />
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/655fc7fd-feb2-4ea8-81f4-265c3594edb4" />
@@ -27,6 +28,10 @@ personal sites im so sorry guys :-[
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/79872d4f-b2ce-4c76-bf69-c1d9d39e1d06" />
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/05058e25-9860-4b1c-a139-c37637aac3f0" />
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/30767335-d3ec-4e6a-a6ec-bb2d33c6c48d" />
+<img width="99" height="60" alt="Image" src="https://github.com/user-attachments/assets/2b580488-5090-4c27-b132-b107e8332b87" />
+<img width="99" height="60" alt="Image" src="https://github.com/user-attachments/assets/fb0d65b7-40d0-468f-b6e0-78b7d1b0c039" />
+<img width="99" height="60" alt="Image" src="https://github.com/user-attachments/assets/a1722b06-6f69-43bc-ab70-8314772810f1" />
+<img width="99" height="60" alt="Image" src="https://github.com/user-attachments/assets/f4da97cd-003f-4fc9-9b4b-c2b1fa813d7d" />
 <img width="224" height="56" alt="Image" src="https://github.com/user-attachments/assets/51c051b7-58d3-4830-bfea-e597493fab45" />
 <img width="224" height="56" alt="Image" src="https://github.com/user-attachments/assets/e86aa896-dc30-4b0b-af38-a18436ea8ee8" />
 <img width="224" height="56" alt="Image" src="https://github.com/user-attachments/assets/a721cdf5-8765-47e9-9476-b59f110cb453" />
