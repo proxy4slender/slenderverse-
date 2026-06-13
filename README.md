@@ -1,4 +1,5 @@
-# all graphs i could find correlating 2 slenderverse or crp
+stamps, gifs, blinkies, blingees,   etc
+
 sidenote: theres actually so little
 i has 2 dig theae up from neocities
 personal sites im so sorry guys :-[
@@ -23,10 +24,12 @@ personal sites im so sorry guys :-[
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/655fc7fd-feb2-4ea8-81f4-265c3594edb4" />
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/69fa4c97-873f-4018-8efe-1053b1510578" />
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/9e8b5a38-17da-4529-8dd9-65e9d5b4bfee" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/79872d4f-b2ce-4c76-bf69-c1d9d39e1d06" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/05058e25-9860-4b1c-a139-c37637aac3f0" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/30767335-d3ec-4e6a-a6ec-bb2d33c6c48d" />
 <img width="224" height="56" alt="Image" src="https://github.com/user-attachments/assets/51c051b7-58d3-4830-bfea-e597493fab45" />
-<img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/f7fdc458-fffc-4f25-95c0-f45d0fe89611" />
-
 <img width="224" height="56" alt="Image" src="https://github.com/user-attachments/assets/e86aa896-dc30-4b0b-af38-a18436ea8ee8" />
 <img width="224" height="56" alt="Image" src="https://github.com/user-attachments/assets/a721cdf5-8765-47e9-9476-b59f110cb453" />
 <img width="224" height="56" alt="Image" src="https://github.com/user-attachments/assets/f1a3f89e-da4a-4455-ac8b-80d13aa1033a" />
 <img width="224" height="56" alt="Image" src="https://github.com/user-attachments/assets/849bd073-4121-457a-ad8a-e7ad7dfa7079" />
+<img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/f7fdc458-fffc-4f25-95c0-f45d0fe89611" />
