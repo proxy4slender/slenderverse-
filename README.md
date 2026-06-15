@@ -51,6 +51,11 @@ personal sites im so sorry guys :-[
 <img width="99" height="60" alt="Image" src="https://github.com/user-attachments/assets/ce6821ec-6e41-4574-bd4a-fb2308b93984" />
 <img width="99" height="60" alt="Image" src="https://github.com/user-attachments/assets/d402c00f-b7cf-4c8d-be9e-a573668ea233" />
 <img width="99" height="60" alt="Image" src="https://github.com/user-attachments/assets/bbdb65e5-c71d-4137-a7b4-f541e505e95b" />
+<img width="99" height="60" alt="Image" src="https://github.com/user-attachments/assets/9cd2bf3f-e821-4f44-9191-59c55b3c35fb" />
+<img width="99" height="60" alt="Image" src="https://github.com/user-attachments/assets/5c984588-fe42-444c-b906-7cf90d11989b" />
+<img width="99" height="60" alt="Image" src="https://github.com/user-attachments/assets/c00e37d1-df4b-4325-94e0-a9025a114366" />
+<img width="99" height="60" alt="Image" src="https://github.com/user-attachments/assets/26e1caf2-8d56-4c55-8706-61145adeb778" />
+<img width="99" height="60" alt="Image" src="https://github.com/user-attachments/assets/5061d8a8-f195-4d0e-bfbf-b606458a6b3a" />
 <img width="99" height="60" alt="Image" src="https://github.com/user-attachments/assets/2a8a6961-ea30-4161-bd21-7f3fc2ed49b1" />
 <img width="99" height="60" alt="Image" src="https://github.com/user-attachments/assets/5d93cb72-83f3-4e4d-8f78-d923fa1085a9" />
 <img width="224" height="56" alt="Image" src="https://github.com/user-attachments/assets/51c051b7-58d3-4830-bfea-e597493fab45" />
@@ -59,3 +64,4 @@ personal sites im so sorry guys :-[
 <img width="224" height="56" alt="Image" src="https://github.com/user-attachments/assets/f1a3f89e-da4a-4455-ac8b-80d13aa1033a" />
 <img width="224" height="56" alt="Image" src="https://github.com/user-attachments/assets/849bd073-4121-457a-ad8a-e7ad7dfa7079" />
 <img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/f7fdc458-fffc-4f25-95c0-f45d0fe89611" />
+<img width="600" height="80" alt="Image" src="https://github.com/user-attachments/assets/4751597b-5663-453c-9db8-6a53d227a9e2" />
