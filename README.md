@@ -65,3 +65,7 @@ personal sites im so sorry guys :-[
 <img width="224" height="56" alt="Image" src="https://github.com/user-attachments/assets/849bd073-4121-457a-ad8a-e7ad7dfa7079" />
 <img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/f7fdc458-fffc-4f25-95c0-f45d0fe89611" />
 <img width="600" height="80" alt="Image" src="https://github.com/user-attachments/assets/4751597b-5663-453c-9db8-6a53d227a9e2" />
+
+,,,,,
+<img width="173" height="184" alt="Image" src="https://github.com/user-attachments/assets/9a3c7777-1037-4225-8456-71f5cd5e032c" />
+<img width="82" height="134" alt="Image" src="https://github.com/user-attachments/assets/2860c14d-4d2f-4df8-9dde-f06346d648d5" />
