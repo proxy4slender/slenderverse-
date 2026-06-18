@@ -20,6 +20,18 @@ stamps and gifs 99x56
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/ceb1b34e-ce1d-4873-8dba-c3b3bc57d62c" />
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/7805d726-f560-4d10-a137-0c8afb2b577a" />
 <img width="98" height="55" alt="Image" src="https://github.com/user-attachments/assets/6f7cbe4d-23f8-4e8f-b989-f23a91915db5" />
+ <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/256ed32d-ba70-4963-82fa-bfb935c16881" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/50a79280-4e83-4a2a-a1a4-d68d95af6861" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/4774761c-68cd-4bc6-8460-f2cf9a1f6daa" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/01759006-8af5-4b16-9a99-6a387ddd3237" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/65225e4c-f924-43c7-8831-061b0ddffd1f" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/c6ea680c-52f7-4ba6-891f-a01b7cc4bb7d" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/cff8227e-4b54-482f-a3ba-7df15bdbb1d0" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/1665dd83-377c-4296-bb7f-7d94977433bd" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/02cd6397-4197-4028-9518-9b05c485d8f1" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/40703101-f00a-4492-bcbf-4502dbb5af9a" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/ec3c857b-4955-4bf0-baa8-1c583030ae2e" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/7b21781b-4954-4733-9a03-5c3ec74caae4" />
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/fffe9069-1d38-4de0-b873-85eeee8fe1e4" />
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/d84c70fc-6f6e-438f-9557-a88e6ab6f980" />
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/57438b63-d029-4510-82a7-eedeed695afd" />
@@ -184,3 +196,6 @@ blinkies 150x20
 <img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/3151a2dd-ab75-4062-9585-13e6cfba3e61" />
 <img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/d3efb422-264a-4e02-8a3c-296356661f84" />
 <img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/37eb4a42-2976-44c4-8ca3-3600d5c597c7" />
+<img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/c4d1985f-5624-47be-9b2c-68830bfc630c" />
+<img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/d9e1934e-f62d-4c09-82ef-4acdfd72ff94" />
+<img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/8670eece-7bbf-4781-801d-2041f4a72816" />
