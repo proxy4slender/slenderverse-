@@ -1,4 +1,4 @@
-slenderverse, creepypasta, marble hornets, everymanhybrid, slenderman, jeff, ben drowned, smile dog, jane,  eyeless jack, sally, bloody painter, nina, splendorman, toby, masky, hoddie, tim, brian, jay alex, jessica, evan, habit, graphics, stamps, gifs, blinkies, blingees,   etc
+slenderverse, creepypasta, marble hornets, everymanhybrid, slenderman, jeff, nina, clockwork, kate the chaser, ben drowned, smile dog, jane,  eyeless jack, laughing jack, sally, bloody painter, nina, splendorman, toby, masky, hoddie, tim, brian, jay alex, jessica, evan, habit, graphics, stamps, gifs, blinkies, blingees,   etc
 
 sidenote: theres actually so little
 i has 2 dig theae up from neocities
@@ -287,3 +287,9 @@ blinkies 150x20
 <img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/c4d1985f-5624-47be-9b2c-68830bfc630c" />
 <img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/d9e1934e-f62d-4c09-82ef-4acdfd72ff94" />
 <img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/8670eece-7bbf-4781-801d-2041f4a72816" />
+<img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/06b922d4-2708-423a-8889-7007b3d0b33a" />
+<img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/72c1875c-cfde-4876-8281-0d2e496c4adc" />
+<img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/a18c6357-e700-444d-890e-662f1610246e" />
+<img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/21b09085-4b13-4f02-92fc-950cb46496a0" />
+<img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/f4184e01-ffdb-486c-a73e-df5780ccabe2" />
+<img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/e096a679-ae67-4d18-9c68-3de45da93b58" />
