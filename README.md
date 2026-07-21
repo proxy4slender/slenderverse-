@@ -1,8 +1,8 @@
+sidenote: theres actually so little of these i has 2 digup most things up from neocities, strawpages and spaceheys :-[
+
 slenderverse, creepypasta, marble hornets, everymanhybrid, slenderman, jeff, nina, clockwork, kate the chaser, ben drowned, smile dog, jane,  eyeless jack, laughing jack, sally, bloody painter, nina, splendorman, toby, masky, hoddie, tim, brian, jay alex, jessica, evan, habit, tribetwelve, observer, graphics, stamps, gifs, blinkies, blingees,   etc
 
-sidenote: theres actually so little
-i has 2 dig theae up from neocities
-personal sites im so sorry guys :-[
+
 
 stamps and gifs 99x56
 
@@ -315,3 +315,7 @@ blinkies 150x20
 <img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/21b09085-4b13-4f02-92fc-950cb46496a0" />
 <img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/f4184e01-ffdb-486c-a73e-df5780ccabe2" />
 <img width="150" height="20" alt="Image" src="https://github.com/user-attachments/assets/e096a679-ae67-4d18-9c68-3de45da93b58" />
+
+userboxes 250x51
+
+<img width="250" height="51" alt="Image" src="https://github.com/user-attachments/assets/3a101c34-1ec0-4b26-b25a-127a9658e994" />
