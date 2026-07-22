@@ -23,6 +23,10 @@ Slenderman
 <img width="99" height="57" alt="Image" src="https://github.com/user-attachments/assets/edbfa3c9-ca2e-41d4-b0a1-f5c9847e487b" />
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/b3cc4a00-f125-44be-bfb2-adc076823f15" />
 <br>
+Splendorman
+<br>
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/74b2fa77-d4ce-4760-95db-33e2a26c04a5" />
+<br>
 Jeff the killer
 <br>
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/db81eb9d-2671-4fc5-bee7-f9d30f09ebda" />
@@ -30,6 +34,7 @@ Jeff the killer
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/ae67fa70-8248-4612-ab52-83117570bbee" />
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/c6ea680c-52f7-4ba6-891f-a01b7cc4bb7d" />
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/cff8227e-4b54-482f-a3ba-7df15bdbb1d0" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/655fc7fd-feb2-4ea8-81f4-265c3594edb4" />
 <br>
 Smile Dog
 <br>
@@ -52,6 +57,7 @@ Eyeless Jack
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/5917432e-c791-44b5-8f24-f07a6f1b2023" />
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/0b7a0964-00e5-49b0-a518-d9e0f446002e" />
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/c0ac238a-ae68-4375-bef1-cbce03b2d42b" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/4e7268ab-a3b7-4789-8305-7594cdd4e92e" />
 <br>
 Sally Williams
 <br>
@@ -68,6 +74,8 @@ MISCELLANOUS
 <br>
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/75ab6e1d-9921-497b-a50f-ce1ffb504898" />
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/89587eac-3610-4a62-8da8-1d392bb22719" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/69fa4c97-873f-4018-8efe-1053b1510578" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/9e8b5a38-17da-4529-8dd9-65e9d5b4bfee" />
 <br>
 Kate The Chaser
 <br>
@@ -82,6 +90,7 @@ Nina the Killer
 Bloody Painter
 <br>
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/d866e918-c8e8-41ec-9f00-72ff906c1b3b" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/19c477f2-55d0-43cc-9b1a-bdc5ce3e3e21" />
 <br>
 Ben Drowned
 <br>
@@ -102,13 +111,9 @@ Whatever these are
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/9aadd157-63df-45cb-9768-01a16d2e7918" />
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/fffe9069-1d38-4de0-b873-85eeee8fe1e4" />
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/d84c70fc-6f6e-438f-9557-a88e6ab6f980" />
-
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/74b2fa77-d4ce-4760-95db-33e2a26c04a5" />
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/19c477f2-55d0-43cc-9b1a-bdc5ce3e3e21" />
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/655fc7fd-feb2-4ea8-81f4-265c3594edb4" />
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/4e7268ab-a3b7-4789-8305-7594cdd4e92e" />
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/69fa4c97-873f-4018-8efe-1053b1510578" />
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/9e8b5a38-17da-4529-8dd9-65e9d5b4bfee" />
+<br>
+EverymanHybrid
+<br>
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/79872d4f-b2ce-4c76-bf69-c1d9d39e1d06" />
  <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/6eeab550-5c26-44ed-9543-db539b1d8871" />
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/b76f30d5-134c-4f4d-80bd-9ff82424f637" />
