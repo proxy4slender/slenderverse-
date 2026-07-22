@@ -1,63 +1,108 @@
-sidenote: theres actually so little of these i has 2 digup most things up from neocities, strawpages and spaceheys :-[
-
-slenderverse, creepypasta, marble hornets, everymanhybrid, slenderman, jeff, nina, clockwork, kate the chaser, ben drowned, smile dog, jane,  eyeless jack, laughing jack, sally, bloody painter, nina, splendorman, toby, masky, hoddie, tim, brian, jay alex, jessica, evan, habit, tribetwelve, observer, graphics, stamps, gifs, blinkies, blingees,   etc
+sidenote: theres actually so little of these i has 2 digup most things up from neocities, tumgik, tumblr, strawpages and spaceheys :-[
 
 
 
-stamps and gifs 99x56
+
+**stamps and gifs 99x56**
+
+Creepypasta
 
 <img width="99" height="55" alt="Image" src="https://github.com/user-attachments/assets/97a2d898-510f-488a-9a3b-9e2a8294c3e3" />
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/a3229ffc-d78e-4fd0-8efe-73729d8764a0" />
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/7667bc3a-c8f6-4c07-9229-93cdaef9f9fe" />
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/c0f510c7-65db-4dc5-9a28-14351787d85c" />
 <img width="99" height="55" alt="Image" src="https://github.com/user-attachments/assets/3212a9d8-ecb7-4a2a-9587-6cd82f9af94a" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/3649a846-3331-474d-836b-4ad4bfd95340" />
+<img width="100" height="56" alt="Image" src="https://github.com/user-attachments/assets/02538392-adf0-447c-bca6-6f29f2ffefc2" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/50a79280-4e83-4a2a-a1a4-d68d95af6861" />
+<br>
+Slenderman
+<br>
 <img width="101" height="58" alt="Image" src="https://github.com/user-attachments/assets/1df6f40d-17ac-4d82-aa99-f8d88d9035b9" />
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/6796f46f-42f9-4941-8dd7-c30b4f783df0" />
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/063b5ad2-b2fe-499c-a115-976de903bd5c" />
 <img width="99" height="57" alt="Image" src="https://github.com/user-attachments/assets/edbfa3c9-ca2e-41d4-b0a1-f5c9847e487b" />
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/db81eb9d-2671-4fc5-bee7-f9d30f09ebda" />
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/3649a846-3331-474d-836b-4ad4bfd95340" />
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/eb3259ae-7672-442a-9721-30da2b206c3b" />
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/9aadd157-63df-45cb-9768-01a16d2e7918" />
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/6f31d5fb-c924-4710-8ce3-a91815ad63a2" />
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/acef5536-2e4a-4ddd-a6fd-946d28a5263c" />
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/5917432e-c791-44b5-8f24-f07a6f1b2023" />
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/a1006207-8f7f-4254-b418-ab99a38fdb52" />
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/72f9feea-9e40-4058-9430-9421558543b8" />
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/32a5d3c2-d93c-452e-bfad-449ba04c87a2" />
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/89587eac-3610-4a62-8da8-1d392bb22719" />
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/0b7a0964-00e5-49b0-a518-d9e0f446002e" />
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/9d2fe444-bd18-4af4-9696-d056a5daae4c" />
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/3aba237b-5c4a-441a-b8fb-32074386a9a9" />
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/ae67fa70-8248-4612-ab52-83117570bbee" />
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/3438d8b0-f298-4b16-bdba-f777a50c4eee" />
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/d866e918-c8e8-41ec-9f00-72ff906c1b3b" />
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/75ab6e1d-9921-497b-a50f-ce1ffb504898" />
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/e679606f-640e-422f-abe4-31caddfcffb4" />
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/2a7021f6-2d56-40d8-abea-d81ce5959da5" />
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/0d743012-b389-4663-9b6d-2a99149393f8" />
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/b3cc4a00-f125-44be-bfb2-adc076823f15" />
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/73632f38-c25d-46ba-9873-ddff7616c5f3" />
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/c0ac238a-ae68-4375-bef1-cbce03b2d42b" />
-<img width="100" height="56" alt="Image" src="https://github.com/user-attachments/assets/02538392-adf0-447c-bca6-6f29f2ffefc2" />
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/ceb1b34e-ce1d-4873-8dba-c3b3bc57d62c" />
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/7805d726-f560-4d10-a137-0c8afb2b577a" />
-<img width="98" height="55" alt="Image" src="https://github.com/user-attachments/assets/6f7cbe4d-23f8-4e8f-b989-f23a91915db5" />
- <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/256ed32d-ba70-4963-82fa-bfb935c16881" />
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/50a79280-4e83-4a2a-a1a4-d68d95af6861" />
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/4774761c-68cd-4bc6-8460-f2cf9a1f6daa" />
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/01759006-8af5-4b16-9a99-6a387ddd3237" />
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/65225e4c-f924-43c7-8831-061b0ddffd1f" />
+<br>
+Jeff the killer
+<br>
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/db81eb9d-2671-4fc5-bee7-f9d30f09ebda" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/a1006207-8f7f-4254-b418-ab99a38fdb52" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/ae67fa70-8248-4612-ab52-83117570bbee" />
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/c6ea680c-52f7-4ba6-891f-a01b7cc4bb7d" />
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/cff8227e-4b54-482f-a3ba-7df15bdbb1d0" />
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/1665dd83-377c-4296-bb7f-7d94977433bd" />
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/02cd6397-4197-4028-9518-9b05c485d8f1" />
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/40703101-f00a-4492-bcbf-4502dbb5af9a" />
+<br>
+Smile Dog
+<br>
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/eb3259ae-7672-442a-9721-30da2b206c3b" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/ceb1b34e-ce1d-4873-8dba-c3b3bc57d62c" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/7805d726-f560-4d10-a137-0c8afb2b577a" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/01759006-8af5-4b16-9a99-6a387ddd3237" />
+<br>
+Toby Erin Rogers 
+<br>
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/6f31d5fb-c924-4710-8ce3-a91815ad63a2" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/acef5536-2e4a-4ddd-a6fd-946d28a5263c" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/3438d8b0-f298-4b16-bdba-f777a50c4eee" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/65225e4c-f924-43c7-8831-061b0ddffd1f" />
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/ec3c857b-4955-4bf0-baa8-1c583030ae2e" />
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/7b21781b-4954-4733-9a03-5c3ec74caae4" />
+<br>
+Eyeless Jack
+<br>
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/5917432e-c791-44b5-8f24-f07a6f1b2023" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/0b7a0964-00e5-49b0-a518-d9e0f446002e" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/c0ac238a-ae68-4375-bef1-cbce03b2d42b" />
+<br>
+Sally Williams
+<br>
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/72f9feea-9e40-4058-9430-9421558543b8" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/e679606f-640e-422f-abe4-31caddfcffb4" />
+<br>
+Laughing Jack
+<br>
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/32a5d3c2-d93c-452e-bfad-449ba04c87a2" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/1665dd83-377c-4296-bb7f-7d94977433bd" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/02cd6397-4197-4028-9518-9b05c485d8f1" />
+<br>
+MISCELLANOUS
+<br>
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/75ab6e1d-9921-497b-a50f-ce1ffb504898" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/89587eac-3610-4a62-8da8-1d392bb22719" />
+<br>
+Kate The Chaser
+<br>
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/9d2fe444-bd18-4af4-9696-d056a5daae4c" />
+<br>
+Nina the Killer
+<br>
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/3aba237b-5c4a-441a-b8fb-32074386a9a9" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/256ed32d-ba70-4963-82fa-bfb935c16881" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/57438b63-d029-4510-82a7-eedeed695afd" />
+<br> 
+Bloody Painter
+<br>
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/d866e918-c8e8-41ec-9f00-72ff906c1b3b" />
+<br>
+Ben Drowned
+<br>
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/2a7021f6-2d56-40d8-abea-d81ce5959da5" />
+<img width="98" height="55" alt="Image" src="https://github.com/user-attachments/assets/6f7cbe4d-23f8-4e8f-b989-f23a91915db5" />
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/40703101-f00a-4492-bcbf-4502dbb5af9a" />
+<br>
+Clockwork
+<br>
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/0d743012-b389-4663-9b6d-2a99149393f8" />
+<br>
+Jane the killer
+<br>
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/73632f38-c25d-46ba-9873-ddff7616c5f3" />
+<br>
+Whatever these are
+<br>
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/9aadd157-63df-45cb-9768-01a16d2e7918" />
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/fffe9069-1d38-4de0-b873-85eeee8fe1e4" />
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/d84c70fc-6f6e-438f-9557-a88e6ab6f980" />
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/57438b63-d029-4510-82a7-eedeed695afd" />
+
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/74b2fa77-d4ce-4760-95db-33e2a26c04a5" />
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/19c477f2-55d0-43cc-9b1a-bdc5ce3e3e21" />
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/655fc7fd-feb2-4ea8-81f4-265c3594edb4" />
